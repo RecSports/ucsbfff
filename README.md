@@ -1,2 +1,2 @@
 # ucsbfff
-fun &amp; fitness festival
+fun and fitness festival
